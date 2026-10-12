@@ -1,6 +1,6 @@
 # Derek Belfield
 
-Technical program manager and operator. I bring order to chaos: Marine Corps aviation maintenance, payments infrastructure and compliance, and multi-site production. Open to Technical Program Manager roles in Dallas–Fort Worth.
+Technical program manager and operator. I bring order to chaos: Marine Corps aviation maintenance, payments infrastructure and compliance, and multi-site production. Based in Dallas–Fort Worth and open to Technical Program Manager roles anywhere, remote or relocation.
 
 **[derekbelfield.com](https://derekbelfield.com)** · [LinkedIn](https://www.linkedin.com/in/dwbelfield)
 
